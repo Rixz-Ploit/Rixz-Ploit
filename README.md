@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @RixzPloit
+# 👋 Hi, I’m @Rixz-Ploit
 
 # 💫 About Me:
 🚀 I'm student from indonesia🇮🇩, <br>☕ i'm beginner<br>🙏 please support me<br>🔬 i'm learning python programing language
